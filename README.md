@@ -1,1 +1,1 @@
-[# Oryantasyon-Final-devi](https://youtu.be/ofgofUETsCc)https://youtu.be/ofgofUETsCc
+Youtube Video Linki : https://youtu.be/ofgofUETsCc
